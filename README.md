@@ -16,8 +16,3 @@
 ---
 [![](https://komarev.com/ghpvc/?username=Overclocked1999&icon=2&color=4)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-](https://stackoverflow.com/users/32835813/overclocked)[ReadMe.md](https://github.com/user-attachments/files/28923783/ReadMe.md)
